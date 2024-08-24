@@ -15,5 +15,5 @@
 
 ## Contact
 
-For questions or further information, please contact [your.email@example.com](mailto:your.email@example.com).
+For questions or further information, please contact [Instagram](https://www.instagram.com/imthaxx/).
 
